@@ -23,7 +23,7 @@
 
 - 📄 **Professional Profile**: Learn more on [LinkedIn](https://www.linkedin.com/in/mohammad-alshurbaji-b18200159/).
 
-- ⚡ **Fun Fact**: I’ve driven through **30 states across the U.S.**—I love road trips and discovering the beauty of diverse landscapes!
+- ⚡ **Fun Fact**: I’ve driven through **30 states across the U.S.** - I love road trips and discovering the beauty of diverse landscapes!
 
 ---
 
